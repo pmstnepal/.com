@@ -1,0 +1,2 @@
+# .com
+pmstnepal.com
